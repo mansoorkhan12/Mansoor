@@ -1,1 +1,1 @@
-@Rayees Mansoor kundozii
+@Rayees Mansoor ku
